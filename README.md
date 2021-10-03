@@ -12,7 +12,7 @@
 
 🔵 I love talking tech (anything from **Homelabs** to **Formal Verification**).
 
-🟣 I'm a huge sci-fi nerd: my identical twin and I both want to explore the the cosmos!
+🟣 I'm a huge sci-fi nerd and I hope humanity explores the stars in my lifetime!
 
 ---
 
